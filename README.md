@@ -1,0 +1,1 @@
+VALEK IS DNIWE
